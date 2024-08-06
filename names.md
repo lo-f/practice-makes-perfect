@@ -1,1 +1,2 @@
 Cody Kremer
+# DYNAMIC DUOS!!!!!
